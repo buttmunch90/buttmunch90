@@ -5,3 +5,7 @@
 
 
 ![ddn5njf-c67f312e-0b00-45ae-b4f1-b522a524701c](https://github.com/buttmunch90/buttmunch90/assets/147678899/aed53315-7e6e-455d-98c1-c653aaf13e86)![ddn5njf-c67f312e-0b00-45ae-b4f1-b522a524701c](https://github.com/buttmunch90/buttmunch90/assets/147678899/aed53315-7e6e-455d-98c1-c653aaf13e86)![ddn5njf-c67f312e-0b00-45ae-b4f1-b522a524701c](https://github.com/buttmunch90/buttmunch90/assets/147678899/aed53315-7e6e-455d-98c1-c653aaf13e86)![ddn5njf-c67f312e-0b00-45ae-b4f1-b522a524701c](https://github.com/buttmunch90/buttmunch90/assets/147678899/aed53315-7e6e-455d-98c1-c653aaf13e86)![ddn5njf-c67f312e-0b00-45ae-b4f1-b522a524701c](https://github.com/buttmunch90/buttmunch90/assets/147678899/aed53315-7e6e-455d-98c1-c653aaf13e86)![ddn5njf-c67f312e-0b00-45ae-b4f1-b522a524701c](https://github.com/buttmunch90/buttmunch90/assets/147678899/aed53315-7e6e-455d-98c1-c653aaf13e86)
+
+
+> lordd pleas get thesee ugly men off my screen i beg
+![image](https://github.com/buttmunch90/buttmunch90/assets/147678899/879f7a62-783c-4a01-86ed-64b03a165ff8)
