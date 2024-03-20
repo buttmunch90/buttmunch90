@@ -10,5 +10,3 @@
 
 > lordd pleas get thesee ugly men off my screen i beg
 ![image](https://github.com/buttmunch90/buttmunch90/assets/147678899/879f7a62-783c-4a01-86ed-64b03a165ff8)
-
-https://github.com/buttmunch90/buttmunch90/assets/147678899/c8272ef2-4743-457a-8694-c2941c372ae4
